@@ -15,3 +15,9 @@
 8. German (Rolf Buchholz)  is ~~a~~(the) man ~~who has~~(with) the most ~~pierceings~~(piercings), he (has) ~~gots~~(got) ~~463~~(453).
 
 9. A ~~satllite~~(satellite) (that was carried to) ~~the~~ space (aboard the shuttle Discovery)  20 years ago ~~will~~(is about to) fall to ~~the~~ ~~earth~~(Earth),  but nobody (knows where the debris) will hit .
+
+10. It's (a) ~~loughty~~(lofty), ~~probaly~~(probably) impossible  goal.
+
+11. ~~Your swipe by identical, it's  day night dubble  Wensdy.~~ New York swept the series Tampa Bay Rays by identical 4-2 scores in a day-night doubbleheader Wednesday.
+
+12. ~~James Hanson creates muppets is in greend wall in Mssibe.~~ Jim Henson, creator of The Muppets- from Kermit the Frog to Sesame Street -  is born in Greenvill, Mississippi.
