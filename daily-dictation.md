@@ -21,3 +21,9 @@
 11. ~~Your swipe by identical, it's  day night dubble  Wensdy.~~ New York swept the series Tampa Bay Rays by identical 4-2 scores in a day-night doubbleheader Wednesday.
 
 12. ~~James Hanson creates muppets is in greend wall in Mssibe.~~ Jim Henson, creator of The Muppets- from Kermit the Frog to Sesame Street -  is born in Greenvill, Mississippi.
+
+13. Asian tiger (mosquitoes are native to the tropics of) ~~south of~~(Southeast) Asia, (but in the past few years) they('ve) spread (all) across ~~South East the~~ (southeastern) United States.
+
+14. Cats (reputedly) have nine lives, and he clearly wanted to spend (at least) one of them, here ~~is~~(in) the New York City.
+
+15. The ~~front same~~(frantic pacing scene) change(s) ~~to~~ every 11 seconds on average --  often ~~leave~~(leads) ~~children  with spondge bar~~(kids zoned out and spun up); unable to ~~constrate~~(concentrate).
