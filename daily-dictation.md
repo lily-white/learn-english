@@ -26,4 +26,16 @@
 
 14. Cats (reputedly) have nine lives, and he clearly wanted to spend (at least) one of them, here ~~is~~(in) the New York City.
 
-15. The ~~front same~~(frantic pacing scene) change(s) ~~to~~ every 11 seconds on average --  often ~~leave~~(leads) ~~children  with spondge bar~~(kids zoned out and spun up); unable to ~~constrate~~(concentrate).
+15. The ~~front same~~(frantic pacing -- scene) change(s) ~~to~~ every 11 seconds on average --  often ~~leave~~(leaves) ~~children  with spondge bar~~(kids zoned out and spun up); unable to ~~constrate~~(concentrate).
+
+16. ~~Bad and floody~~(Battered, soaked and flooded),  the ~~Pillips~~(Philippins) ~~was~~(is being) hit by ~~a~~(its) second ~~taifeng~~（typhoon） in a week.
+
+17. A few years ago they were thought to be useless --  past their ~~prome~~（prime）-- not now.
+
+18. If you are breathing, it is not too late, get up and get going.
+
+19. A 67(-)year~~s~~(-)old grandpa has been found alive after (being) stuck for 6 days (at the) bottom ~~in his van~~(of a ravine).
+
+20. ~~Saturday an plane crushed on a fairwheel  but somehow no one was hurt nor the plane.~~ Saturday, an ultralight plane crashed into a Ferris wheel at a rural festival in Australia, yet somehow no one on the amusement ride nor the plane was hurt.
+
+
