@@ -38,4 +38,11 @@
 
 20. ~~Saturday an plane crushed on a fairwheel  but somehow no one was hurt nor the plane.~~ Saturday, an ultralight plane crashed into a Ferris wheel at a rural festival in Australia, yet somehow no one on the amusement ride nor the plane was hurt.
 
+21. Heidi ~~one all over~~ the world over with her (forever) cute but slightly ~~confuesd~~(confused) look.
 
+22. The project （to) put them online ~~was~~ is expected (to be) ~~completely~~ (completed) by 2016.
+
+23. ~~At the last SAT cheating scandal is discovered on the Longland High School examples at least 6 students.~~
+An alleged SAT cheating scandal has been uncovered at a prestegious Long Island high school.This college student is accused of taking the college entrance exam for at least six students.
+
+24. St Louis hold the game on a cool night, it was the 49 degree at the start of the game.
