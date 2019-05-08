@@ -45,4 +45,13 @@
 23. ~~At the last SAT cheating scandal is discovered on the Longland High School examples at least 6 students.~~
 An alleged SAT cheating scandal has been uncovered at a prestegious Long Island high school.This college student is accused of taking the college entrance exam for at least six students.
 
-24. St Louis hold the game on a cool night, it was the 49 degree at the start of the game.
+24. St. Louis ~~hold the game~~(takes the World Series opener) on a cool night, it was the 49 degrees at the start of the game.
+
+25. ~~A search for missing lives throughtout the night as  family members some tears.~~ 
+Theys searched for the missing under generator-powered flood lights as family members waited by the mounds of debris - some in tears.
+
+26. It's ~~a~~（the) kind of thing you look forward to instead of, (you know some) workout(s), you (dread and) think ~~this can~~（of it as) work, (and) this is just fine.
+
+27. ~~Super heros'~~ (Superhero) ~~customs~~(costums) as usual are big (this year) , especially ~~for some~~(from recent) movies like Thor and The Green Lantern.
+
+28. It's a pain cause my frigetor dumped tonight ,and the food's gone.
