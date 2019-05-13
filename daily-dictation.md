@@ -54,4 +54,15 @@ Theys searched for the missing under generator-powered flood lights as family me
 
 27. ~~Super heros'~~ (Superhero) ~~customs~~(costums) as usual are big (this year) , especially ~~for some~~(from recent) movies like Thor and The Green Lantern.
 
-28. It's a pain cause my frigetor dumped tonight ,and the food's gone.
+28. It's a pain cause my ~~frigetor~~(fridge is ... I) dumped ~~tonight~~(it today) ,and the food's gone.
+
+29. ~~It's as simply for going for landing here, this is  poilot training for this type of insandance.~~
+He says he was simply going by the book when it comes to landing without gear, and that he and his fellow pilots train for these types of incidents.
+
+30. It is ~~a~~（the) ~~vegatable~~(vegetable) some love ~~and~~(to) hate, but now a new (breed of) broccoli super broccoli developed (in Britain may protect against) ~~for~~ heart disease  even some kinds of cancer.
+
+31. （Mayer Sam Adams ordered that）~~many campaigns~~(the camp be) shut down Saturday ~~setting~~(citing) (un)healthy conditions and (the) attraction of drug dealer(s) ~~defeats~~(and thieves).
+
+32. (A preliminary) government report (predicts it'll) take 30 years (or more to safely decommission the facility and)  it could be decades before nearby residents (who were forced to flee) can return (to) the （area) .
+
+33. there were lifting chairs out of the way, broken glass, other  but it was  at least.
